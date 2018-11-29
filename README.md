@@ -7,6 +7,8 @@
 
 ## Задание 2
 
+[Задание 2](https://www.youtube.com/watch?v=1iHOCsa95L4&feature=youtu.be)
+
 ## Задание 3
 
 
