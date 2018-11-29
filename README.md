@@ -10,11 +10,11 @@
 
 ## Задание 3. Задания для самостоятельной работы
 
-[Все задания](Annotirovanny.docx)
+[Все задания](https://yadi.sk/i/5NJzLdgwMYHcig)
 
-[Задание 1.1](Задание №1.1.pptx)
+[Задание 1.1](https://yadi.sk/i/ogSeHyPveKKXJg)
 
-[Задание 5.2](Задание №5.2.pptx)
+[Задание 5.2](https://yadi.sk/i/6i72M3wF81Lm9w)
 
-[Задание 9.1](Задание № 9.1.pptx)
+[Задание 9.1](https://yadi.sk/i/Evi-wcAVLHMTIQ)
 
