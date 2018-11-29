@@ -5,7 +5,7 @@
 [Задание 1](task1.md)
 
 
-## Задание 2
+## Задание 2. Создание субтитров для видео
 
 [Задание 2](https://www.youtube.com/watch?v=1iHOCsa95L4&feature=youtu.be)
 
