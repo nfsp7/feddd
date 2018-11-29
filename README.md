@@ -18,3 +18,5 @@
 
 [Задание 9.1](https://yadi.sk/i/Evi-wcAVLHMTIQ)
 
+### Участие в открытом онлайн курсе
+[Задание 8.1](https://www.youtube.com/watch?v=XvSECQoy6Tk)
